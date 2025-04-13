@@ -1,0 +1,1 @@
+# Automated-software-for-downloading-internet-services-and-tariff-databases-in-Peru-from-2022-to-2025.
